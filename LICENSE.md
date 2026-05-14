@@ -1,4 +1,4 @@
-# 
+# rare MindManager for Windows Extension | task-integration + collaboration is the best MindManager for Windows extension, featuring task-integration and collaboration. Powerful,
 
 
 
